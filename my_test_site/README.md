@@ -1,0 +1,2 @@
+This is a rough mockup of a website that i intesnd to build sometime in the future. While "some time in the future" is not definitive, it serves as a reminder that i have something important to work on whenever i feel like i'm slacking.
+Thanks
